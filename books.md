@@ -12,11 +12,11 @@
 🎧 As an audiobook
 Not listed: Shit I'm embarrassed about, or things I didn't finish
 ```
-```
 Books are stacked roughly in accordance to the date finished, newest ones on top, like layers of sediment settling.
-```
+
+- **The Faraway Nearby** Rebecca Solnit 🍀
 - **5 Love Languages** Gary D. Chapman
-- **Red at the Bone** Jacqueline Woodson 🍀
+- **Red at the Bone** Jacqueline Woodson
 - **Not Your Sidekick** C. B. Lee
 - **Unfuck Your Brain** Faith Harper 🧠
 - **The Mindful Way Through Depression** Jon Kabat-Zinn 🎧
