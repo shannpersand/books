@@ -31,7 +31,7 @@ Books are stacked roughly in accordance to the date finished, newest ones on top
 - **Over the Top** Jonathan Van Ness
 - **One Man's Meat** E. B. White 🧠🍀
 - **The Sentence is Death** Anthony Horowitz
-- **We Need to Talk** Celeste headlee
+- **We Need to Talk** Celeste Headlee
 - **Annie on My Mind** Nancy Garden
 - **The Hate U Give** Angie Thomas
 - **Ash** Malinda Lo
