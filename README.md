@@ -14,6 +14,9 @@ Not listed: Shit I'm embarrassed about, or things I didn't finish
 ```
 Books are stacked roughly in accordance to the date finished, newest ones on top, like layers of sediment settling.
 
+- **Homegoingy** Yaa Gyasi
+- **Tipping the Velvet** Sarah Waters
+- **Killers of the Flower Moon** David Grann
 - **The Faraway Nearby** Rebecca Solnit 🍀
 - **5 Love Languages** Gary D. Chapman
 - **Red at the Bone** Jacqueline Woodson
