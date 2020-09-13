@@ -14,7 +14,11 @@ Not listed: Shit I'm embarrassed about, or things I didn't finish
 ```
 Books are stacked roughly in accordance to the date finished, newest ones on top, like layers of sediment settling.
 
-- **Autumn** Ali Smith
+- **My Mother's House and Sido** Colette 🍀
+- **Americanah** Chimamanda Ngozi Aditchie
+- **Why Fish Don't Exist** Lulu Miller 🧠
+- **How We Die** Sherwin B. Neuland
+- **Autumn** Ali Smith 🍀
 - **Homegoing** Yaa Gyasi
 - **Tipping the Velvet** Sarah Waters
 - **Killers of the Flower Moon** David Grann
@@ -28,7 +32,7 @@ Books are stacked roughly in accordance to the date finished, newest ones on top
 - **Such a Fun Age** Kiley Reid
 - **Come as You Are** Emily Nagoski
 - **The Vagina Bible** Jennifer Gunter
-- **Where the Crawdads Sing** Deliah Owens
+- **Where the Crawdads Sing** Deliah Owens 🍺
 - **Fingersmith** Sarah Waters
 - **The Witches are Coming** Lindy West
 - **Maybe You Should Talk to Someone** Lori Gottlieb 🧠
