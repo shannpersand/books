@@ -16,9 +16,12 @@ Books are stacked roughly in accordance to the date finished, newest ones on top
 
 - **My Mother's House and Sido** Colette 🍀
 - **Americanah** Chimamanda Ngozi Aditchie
+- **How to Fix a Broken Heart** Guy Winch
+- **Tipping the Velvet** Sarah Waters
 - **Why Fish Don't Exist** Lulu Miller 🧠
 - **How We Die** Sherwin B. Neuland
 - **Autumn** Ali Smith 🍀
+- **Indigenous Peoples' History of the United States** Roxanne Dunbar-Ortiz
 - **Homegoing** Yaa Gyasi
 - **Tipping the Velvet** Sarah Waters
 - **Killers of the Flower Moon** David Grann
